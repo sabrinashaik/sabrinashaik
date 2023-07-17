@@ -9,9 +9,7 @@
 
 - 🤝 I’m looking for help with **job referrals**
 
-- 👨‍💻 All of updates are available at [https://www.linkedin.com/in/sabrina-shaik/](https://www.linkedin.com/in/sabrina-shaik/)
-
-- 📫 How to reach me **sxs25830@ucmo.edu**
+- 📫 How to reach me **sabrina.shaik80@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
